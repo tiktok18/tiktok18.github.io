@@ -5,6 +5,10 @@
 
 In addition to Instagram, there is another platform that is mainly used by under 20-year-olds: TikTok. But what exactly is TikTok?
 
+## GET ACCESS TO TIKTOK18 FOR FREE:
+
+[![TikTok 18 APK](https://i.ibb.co/Xy5jZvM/join-now.png)](https://tiktok18.co/)
+
 TikTok is a video platform for Android and iOS that was founded at the end of September 2016. With it, users can record short, self-made videos and, if desired, add music from well-known songs or film scenes to them. Many users create creative and funny videos via the app, often dancing or moving their lips in sync with the songs / scenes. The videos are usually limited to a length of 10 seconds. However, TikTok is more than just a video platform: Since users can share their videos with others, it is also a social network. TikTok18, or DouYin, as it is called in China, is similar to the social media platform Instagram.
 Who are the users of TikTok?
 
