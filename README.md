@@ -1,5 +1,5 @@
 # TikTok18 App (APK)
-**TikTok18 App APK) for Android/iOS [AVAILABLE HERE](https://tiktok18.co/)**
+> **TikTok18 App APK) for Android/iOS [AVAILABLE HERE](https://tiktok18.co/)** <<<<<<<<
 
 ![tiktok18 logo](https://tiktok18.co/storage/tiktok18-logo-small.jpg)
 
